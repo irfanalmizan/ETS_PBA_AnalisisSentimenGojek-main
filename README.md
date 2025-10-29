@@ -6,9 +6,9 @@
 
 ## 👥 Anggota Kelompok
 
-* Muhammad Alarik Daviarsyah (5026221015)
-* Dewi Maharani (5026221046)
-* Andika Insan Patria (5026221211)
+* Muhammad Irfan Almian (5026221065)
+* Malvin (5026221xxx)
+* Aji (5026221xxx)
 
 ## 🏢 Institusi
 
